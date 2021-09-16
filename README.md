@@ -1,1 +1,0 @@
-# Aulya-Fitrie
